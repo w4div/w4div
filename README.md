@@ -16,5 +16,3 @@ mbti : Isfp . I got scared to talking with strangers, welp😭😭
 - if I cover you, just tell me to move! dnblock or dnhide me!
 ##
 I usually go online in the Pony Town every Saturday and Sunday. Sometimes I go online Monday through Friday when I'm at school, If I have free time or if my teacher allows us to use our phone.
-##
-ocs pictures here, but I'll make this later.
