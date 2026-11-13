@@ -14,6 +14,6 @@ mbti : Isfp . I got scared to talking with strangers, welp😭😭
 - YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*
 ##
 - if I cover you, just tell me to move! dnblock or dnhide me!
-Call me wadi or V/Vee, whatever you want, but unless friends do not call me Mai until we’re close or friends.
+- Call me wadi or V/Vee, whatever you want, but unless friends do not call me Mai until we’re close or friends!! because Mai is my irl name
 ##
 I usually go online in the Pony Town every Saturday and Sunday. Sometimes I go online Monday through Friday when I'm at school, If I have free time or if my teacher allows us to use our phone.
