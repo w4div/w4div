@@ -1,7 +1,7 @@
 ![coolest](https://cdn.phototourl.com/member/2026-11-03-8e1489c7-1fd4-40ae-8485-139463d96e6f.jpg)
 *(don’t worry! voidirusbli is my old username!)*
 ##
-Doubles are okay! Lets shared together🥰🥰 read my prns and sign my ata!! *(if you want to sign, no forced!!!!)*
+Doubles are okay! Let’s shared together🥰🥰 read my prns!
 ##
 C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply!
 Darkshippers or proshippers dni!
