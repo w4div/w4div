@@ -1,13 +1,12 @@
 ![waxwell](https://cdn.phototourl.com/member/2026-11-16-b151c73f-b82f-402b-a34e-b9905cacb417.jpg)
 <div align="center">
 
-<<!-- 1. ตัวนับผู้เข้าชม -->
 <img src="https://w4div.komarev.com&label=flames&color=cdb4db&style=flat-square" />
 
 <br><br>
 
 <a href="https://w4div.atabook.org">
-  <img src="https://shields.io" alt="Atabook" />
+  <img src="https://shields.io cdb4db?style=for-the-badge" alt="Atabook" />
 </a>
 
 <br>
