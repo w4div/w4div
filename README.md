@@ -1,4 +1,25 @@
 ![waxwell](https://cdn.phototourl.com/member/2026-11-16-b151c73f-b82f-402b-a34e-b9905cacb417.jpg)
+<div align="center">
+
+<img src="https://komarev.com" alt="flames" />
+
+<br><br>
+
+<a href="https://w4div.atabook.org">
+  <img src="https://shields.io" alt="Atabook" />
+</a>
+<a href="https://instagram.com">
+  <img src="https://shields.io" alt="Instagram" />
+</a>
+
+<br>
+
+<a href="https://pronouns.cc">
+  <img src="https://shields.io" alt="Pronounscc" />
+</a>
+
+</div>
+
 ##
 ![coolest](https://cdn.phototourl.com/member/2026-11-03-8e1489c7-1fd4-40ae-8485-139463d96e6f.jpg)
 *(voidirusbli is my old username!)*
