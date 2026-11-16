@@ -1,8 +1,6 @@
 ![waxwell](https://cdn.phototourl.com/member/2026-11-16-b151c73f-b82f-402b-a34e-b9905cacb417.jpg)
 <div align="center">
 
-<img src="https://w4div.komarev.com&label=flames" />
-
 <br><br>
 
 <a href="https://w4div.atabook.org">
