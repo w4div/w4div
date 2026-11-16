@@ -45,7 +45,7 @@
 </div>
 <div align="center">
  <details>
-  <summary>$\color{pink}{\text{Doubles are okay!}}$ </summary>
+  <summary>$\color{purple}{\text{Doubles are okay!}}$ </summary>
  </details>
 </div>
 <div align="center">
@@ -55,6 +55,6 @@
 </div>
 <div align="center">
  <details>
-  <summary>$\color{pink}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*}}$ </summary>
+  <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*}}$ </summary>
  </details>
 </div>
