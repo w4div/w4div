@@ -55,6 +55,6 @@
 </div>
 <div align="center">
  <details>
-  <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*}}$ </summary>
+  <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! and MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs}}$ </summary>
  </details>
 </div>
