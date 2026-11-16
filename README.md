@@ -35,7 +35,7 @@
 ##
 <div align="center">
   <details>
-    <summary>🕯️w</summary>
+    <summary>$\color{purple}{\text{🕯️w}}$</summary>
     <br>
     <a href="https://github.com/pt-fashion">
      pt-fashion
