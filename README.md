@@ -6,8 +6,8 @@
 <br><br>
 
 <a href="https://w4div.atabook.org">
-  <img src="https://cdn.phototourl.com/member/2026-11-16-10f42ea1-1411-4ab5-84eb-77c231d1193b.jpg" alt="Atabook" />
-  my atabook!
+  <img src="https://shield.io" alt="Atabook" />
+  atabook
 </a>
 
 <br>
