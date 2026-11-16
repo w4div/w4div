@@ -45,7 +45,7 @@
 </div>
 <div align="center">
  <details>
-  <summary>$\color{white}{\text{Doubles are okay! . C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$ </summary>
+  <summary>$\color{light purple}{\text{Doubles are okay! . C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$ </summary>
  </details>
 </div>
 <div align="center">
