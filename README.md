@@ -42,6 +42,7 @@
     <br>
   </details>
 </div>
+ ![coolest](https://cdn.phototourl.com/member/2026-11-03-8e1489c7-1fd4-40ae-8485-139463d96e6f.jpg)
 ##
 Doubles are okay! . C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply!
 Darkshippers or proshippers dni! . mbti : Isfp - I got scared to talking with strangers, welp😭😭 . YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*
