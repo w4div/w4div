@@ -1,4 +1,4 @@
-![waxwell]([https://cdn.phototourl.com/member/2026-11-16-b151c73f-b82f-402b-a34e-b9905cacb417.jpg](https://cdn.phototourl.com/anon/2026-11-16-f60f7c60-1a66-432a-b308-04fea2e8594c.jpg))
+![waxwell]([https://cdn.phototourl.com/member/2026-11-16-b151c73f-b82f-402b-a34e-b9905cacb417.jpg](https://cdn.phototourl.com/anon/2026-11-16-f60f7c60-1a66-432a-b308-04fea2e8594c.jpg)
 <div align="center">
 
 <a href="https://w4div.atabook.org">
