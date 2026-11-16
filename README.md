@@ -6,28 +6,31 @@
 <br><br>
 
 <a href="https://w4div.atabook.org">
- < alt="atabook" >
+ atabook
 </a>
 
 <br>
 
 <a href="https://pronouns.cc/@Wadivuiikkkhvoid">
-  <img src="https://cdn.phototourl.com/member/2026-11-16-8bf54123-b535-470a-9971-80d8cdefa533.jpg" alt="Pronounscc" />
-  my prns!
+  prns.cc
 </a>
 
 <br>
 
 <a href="https://www.tiktok.com/@wadivuiikkkhvoid">
-  <img src="https://cdn.phototourl.com/member/2026-11-16-2acc4b47-01d6-4567-8ac6-2a3d3b87da78.jpg" alt="Tiktok" />
-  my tiktok!
+  Tiktok
 </a>
 
 <br>
 
 <a href="https://discordid.netlify.app/?id=1503729158365380714">
-  <img src="https://cdn.phototourl.com/member/2026-11-16-769a97ec-a1a0-4644-8790-97900d99150a.jpg" alt="Discord" />
-  my Discord!
+  Discord
+</a>
+
+<br>
+
+<a href="https:">
+  Instagram 
 </a>
 
 </div>
