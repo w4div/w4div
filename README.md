@@ -44,5 +44,8 @@
   </details>
 </div>
 <details>
- <summary>$\color{purple}{\text{Doubles are okay! . C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni! . mbti : Isfp - I got scared to talking with strangers, welp😭😭 . YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!* }}$ </summary>
+ <summary>$\color{purple}{\text{Doubles are okay! . C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$ </summary>
+</details>
+<details>
+ <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*}}$ </summary>
 </details>
