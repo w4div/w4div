@@ -35,10 +35,10 @@
 ##
 <div align="center">
   <details>
-    <summary>🕯️</summary>
+    <summary>🕯️w</summary>
     <br>
-    ![coolest](“https://cdn.phototourl.com/member/2026-11-03-8e1489c7-1fd4-40ae-8485-139463d96e6f.jpg”)<br>
-   *(voidirusbli is my old username!)*<br>
+    <a href=“https://github.com/pt-fashion”>
+     pt-fashion
     <br>
   </details>
 </div>
