@@ -1,7 +1,7 @@
 ![waxwell](https://cdn.phototourl.com/member/2026-11-16-b151c73f-b82f-402b-a34e-b9905cacb417.jpg)
 <div align="center">
 
-<img src="https://w4div.komarev.com&label=flames&color=#cdb4db&style=flat-square" />
+<img src="https://w4div.komarev.com&label=flames" />
 
 <br><br>
 
@@ -29,7 +29,7 @@
 
 <br>
 
-<a href="https:">
+<a href="https://www.instagram.com/sayhimklxmkeliyng?mdxt=MWhranowOWRzM3lhMg==">
   Instagram 
 </a>
 
