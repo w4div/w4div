@@ -37,8 +37,8 @@
   <details>
     <summary>🕯️</summary>
     <br>
-    ![coolest](“https://cdn.phototourl.com/member/2026-11-03-8e1489c7-1fd4-40ae-8485-139463d96e6f.jpg”)
-   *(voidirusbli is my old username!)* <br>
+    ![coolest](“https://cdn.phototourl.com/member/2026-11-03-8e1489c7-1fd4-40ae-8485-139463d96e6f.jpg”)<br>
+   *(voidirusbli is my old username!)*<br>
     <br>
   </details>
 </div>
