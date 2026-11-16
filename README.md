@@ -37,8 +37,9 @@
   <details>
     <summary>🕯️w</summary>
     <br>
-    <a href=“https://github.com/pt-fashion”>
+    <a href="https://github.com/pt-fashion">
      pt-fashion
+    </a>
     <br>
   </details>
 </div>
