@@ -8,14 +8,23 @@
 <a href="https://w4div.atabook.org">
   <img src="https://shields.io" alt="Atabook" />
 </a>
-<a href="https://instagram.com">
-  <img src="https://shields.io" alt="Instagram" />
+
+<br>
+
+<a href="https://pronouns.cc/@Wadivuiikkkhvoid">
+  <img src="https://shields.io" alt="Pronounscc" />
 </a>
 
 <br>
 
-<a href="https://pronouns.cc">
-  <img src="https://shields.io" alt="Pronounscc" />
+<a href="https://www.tiktok.com/@wadivuiikkkhvoid">
+  <img src="https://shields.io" alt="Tiktok" />
+</a>
+
+<br>
+
+<a href="https://discordid.netlify.app/?id=1503729158365380714">
+  <img src="https://shields.io" alt="Discord" />
 </a>
 
 </div>
