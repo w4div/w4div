@@ -43,9 +43,13 @@
     <br>
   </details>
 </div>
-<details>
- <summary>$\color{purple}{\text{Doubles are okay! . C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$ </summary>
-</details>
-<details>
- <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*}}$ </summary>
-</details>
+<div align="center">
+ <details>
+  <summary>$\color{white}{\text{Doubles are okay! . C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$ </summary>
+ </details>
+</div>
+<div align="center">
+ <details>
+  <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*}}$ </summary>
+ </details>
+</div>
