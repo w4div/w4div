@@ -58,6 +58,8 @@ not mine!
 <div align=“center”>
  <details>
   <summary>🕯️. Read!</summary>
+  <br>
    so, sorry about that, for shipping a puppies. I don’t like drama. ouchh. I ship them likes years ago and that’s a past not in pony town if pony town, it was like hours ago. so sorry about that! if you don’t like me or smth… then ignore me! :))) I have no argument against that. While I do prefer things to be peace. I can be quite blunt, and I generally dislike lying—so, I’ll admit it: I was in the wrong, and that was pretty weird of me! That's all I wanted to say.
+  <br>
  </details>
 </div>
