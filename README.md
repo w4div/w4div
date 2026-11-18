@@ -1,5 +1,7 @@
 ![waxwell](https://cdn.phototourl.com/anon/2026-11-16-f60f7c60-1a66-432a-b308-04fea2e8594c.jpg)
-not mine!
+
+**not mine!**
+if I have a problem or smth that makes me feel comfortable, I need sometimes alone. *(iwcec+dnc*h)* if I’m okay I’ll sitting with you.
 
 <div align="center">
 
