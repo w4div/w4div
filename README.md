@@ -2,7 +2,7 @@
 
 **not mine!**
 
-if I have a problem or smth that makes me feel comfortable, I need sometimes alone. *(iwvec+dnc+h+w2i)* if I’m okay I’ll sitting with you.
+if I have a problem or smth that makes me feel comfortable, I need sometimes alone. *(iwvec+w2i)* if I’m okay, I’ll sitting with you.
 
 <div align="center">
 
