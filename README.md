@@ -53,5 +53,6 @@ not mine!
 <div align="center">
   <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! and MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs}}$</summary>
 </div>
+
 ##
 so, sorry about that, for shipping a puppies. I don’t like drama, so dni :<
