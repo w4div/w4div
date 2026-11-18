@@ -55,4 +55,4 @@ not mine!
 </div>
 
 ##
-so, sorry about that, for shipping a puppies. I don’t like drama, so dni :<
+so, sorry about that, for shipping a puppies. I don’t like drama. ouchh
