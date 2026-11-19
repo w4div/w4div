@@ -70,14 +70,11 @@ and I DONT KNOW THEYRE UNDERAGE, IM SORRY!! (Paw Patrol)
 - **"next time please do think before adding ships to ur if you're going to regret this later"** I promise won't do that again and I will think before adding ships! thank you, Marshall.
 
 <div align="center">
-  <details>
-   <summary>🕯️.</summary>
     <br>
     <a href="https://github.com/firepupp">
      firepupp
     </a>
     <br>
-  </details>
 </div>
 
 </details>
