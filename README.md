@@ -69,8 +69,8 @@ and I DONT KNOW THEYRE UNDERAGE, IM SORRY!! (Paw Patrol)
 ![marshallsatabook](https://cdn.phototourl.com/member/2026-11-19-93da5bff-d402-4ed5-bc0f-f88ba3f58985.jpg)
 - **"but I do assume you removed it for my approval."** Yes, That's true ;-; Because when I first saw you, I really liked your Marshall and tried to be friends with you. Back then, anyway. Now I don't really try to make friends, but if someone wants to be friends with me, that's okay.
 - **"next time please do think before adding ships to ur if you're going to regret this later"** I promise won't do that again and I will think before adding ships! thank you, Marshall.
-<a href=“https://github.com/firepupp”>
-@firepupp
+ <a href=“https://github.com/firepupp”>
+ firepupp
 </a>
  </details>
 </div>
