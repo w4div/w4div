@@ -73,7 +73,7 @@ and I DONT KNOW THEYRE UNDERAGE, IM SORRY!! (Paw Patrol)
   <details>
    <summary>🕯️.</summary>
     <br>
-    <a href="https://github.com/firepupp”>
+    <a href="https://github.com/firepupp">
      firepupp
     </a>
     <br>
