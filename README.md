@@ -64,6 +64,8 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
   “November 18, 2026”
   
    im so sorry about that, for shipping a puppies. I don’t like drama. ouchh. I ship them likes years ago and that’s a past not in pony town if pony town, it was like hours ago. so sorry about that! if you don’t like me or smth… then ignore me! :))) I have no argument against that. While I do prefer things to be peace. I can be quite blunt, and I generally dislike lying—so, I’ll admit it: I was in the wrong, and that was pretty weird of me! you can forgive me or if you don’t want so that’s okay. That's all I wanted to say.
-   and I DONT KNOW THEYRE UNDERAGE, IM SORRY!! (Paw Patrol)
+   
+and I DONT KNOW THEYRE UNDERAGE, IM SORRY!! (Paw Patrol)
+![marshallsatabook](https://cdn.phototourl.com/member/2026-11-19-e760be78-999f-4066-b5f8-712e73421fd6.jpg)
  </details>
 </div>
