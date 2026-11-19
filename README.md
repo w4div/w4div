@@ -51,7 +51,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
   <summary>$\color{purple}{\text{Doubles are okay!}}$ </summary>
 </div>
 <div align="center">
-  <summary>$\color{purple}{\text{C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$ </summary>
+  <summary>$\color{purple}{\text{C+H, W2I, W2Ship, Do not copy, Do not cover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$ </summary>
 </div>
 <div align="center">
   <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! and MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs}}$</summary>
