@@ -77,5 +77,6 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
     <br>
     *November 20, 2026 at 4:44:02 PM*
 ![end](https://cdn.phototourl.com/member/2026-11-20-5d71d426-cdb7-4dbc-a261-f78fa7299fae.jpg)
+ending… right? I guess so.
  </details>
 </div>
