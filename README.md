@@ -72,6 +72,5 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
      firepupp
     </a>
     <br>
-
  </details>
 </div>
