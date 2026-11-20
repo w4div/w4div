@@ -62,7 +62,8 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
  <details>
   <summary>🕯️. Read!</summary>
   
-  “The happened” *November 18, 2026*
+  “The happened” *November 18, 2026.*
+  
    im so sorry about that, for shipping a puppies. I don’t like drama. ouchh. I ship them likes years ago and that’s a past not in pony town if pony town, it was like hours ago. so sorry about that! if you don’t like me or smth… then ignore me! :))) I have no argument against that. While I do prefer things to be peace. I can be quite blunt, and I generally dislike lying—so, I’ll admit it: I was in the wrong, and that was pretty weird of me! and I DONT KNOW THEYRE UNDERAGE, IM SOrry! and That's all I wanted to say. *(Paw Patrol)*
 
    “My Apology.” *November 19, 2026 at 5:25:32 PM*
