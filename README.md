@@ -58,7 +58,8 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 </div>
 
 ##
-<details>
+<div align="center">
+ <details>
   <summary>🕯️. Read!</summary>
   “November 18, 2026”
   
@@ -75,5 +76,5 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
     <br>
 </div>
 
-</details>
-
+ </details>
+</div>
