@@ -52,7 +52,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
   Waxwell and Dessa yumeshippers!
  C+H, W2I, W2Ship, Do not copy, Do not cover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!
  YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! and MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs
-  Also I Love Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!}}</summary>
+  Also I Love Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!}}$</summary>
 </div>
 
 ##
