@@ -58,8 +58,9 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
  <details>
   <summary>$\color{purple}{\text{💉. yume/ships, ig.}}$</summary>
   $\color{purple}{\text{Waxwell and Dessa yumeshippers!}}$
-  
-  Also I Love Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!
+  $\color{purple}{\text{Also I Love Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!}}$
+
+  $\color{purple}{\text{England yumeshippers! (Hetalia)}}$
  </details>
 </div>
 
