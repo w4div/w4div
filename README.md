@@ -57,7 +57,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 <div align="center">
  <details>
   <summary>$\color{purple}{\text{💉. yume/ships, ig.}}$</summary>
-  Waxwell and Dessa yumeshippers!
+  $\color{purple}{\text{Waxwell and Dessa yumeshippers!}}$
   
   Also I Love Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!
  </details>
