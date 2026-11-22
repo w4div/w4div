@@ -38,6 +38,9 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 
 ##
 Ewewew I’m France’s/Francis Bonnefoy’s haters😡😡 just kidding, but I really dislike him👎👎
+I love England/Arthur Kirkland❤️❤️ reason: Tsundere because I love all Tsundere characters👍👍
+Also Canada/Matthew Williams My son cuz yes
+##
 <div align="center">
   <details>
     <summary>$\color{purple}{\text{🕯️w}}$</summary>
@@ -61,8 +64,8 @@ Ewewew I’m France’s/Francis Bonnefoy’s haters😡😡 just kidding, but I 
   $\color{purple}{\text{Waxwell and Dessa yumeshippers!}}$
   $\color{purple}{\text{Waxwell and Dessa Fictkin!!}}$
   $\color{purple}{\text{Also Love All Sprout Ships (expect minors) and Waxwell ships (except minors)!}}$
-  $\color{purple}{\text{England/Arthur Kirkland yumeshippers! (Hetalia)}}$
-  $\color{purple}{\text{England Fictkin! He’s so me!!! and Canada/Matthew Williams kin!!!}}$
+  $\color{purple}{\text{England yumeshippers! (Hetalia)}}$
+  $\color{purple}{\text{England Fictkin! He’s so me!!! and Canada kin!!!}}$
   $\color{purple}{\text{Love All England Ships (except minors)!}}$
  </details>
 </div>
