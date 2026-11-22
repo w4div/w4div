@@ -41,7 +41,6 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 Ewewew I’m France’s/Francis Bonnefoy’s haters😡😡 just kidding, but I really dislike him👎👎
 
 I love England/Arthur Kirkland❤️❤️ reason: Tsundere because I love all Tsundere characters👍👍
-
 Also Canada/Matthew Williams My son cuz yes
 </div>
 
