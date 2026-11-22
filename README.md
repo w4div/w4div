@@ -55,8 +55,9 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 
 ##
 <div align="center">
- <summary>$\color{purple}{\text{Waxwell and Dessa yumeshippers!}}$</summary>
- <summary>$\color{purple}{\text{Also I Love Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!}}$</summary>
+ <summary>$\color{purple}{\text{Dandys world}}$</summary>
+  Waxwell and Dessa yumeshippers! 
+ Also I Love Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!
 </div>
 
 ##
