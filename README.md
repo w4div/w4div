@@ -37,6 +37,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 </div>
 
 ##
+Ewewew I’m France’s/Francis Bonnefoy’s haters😡😡 just kidding, but I really dislike him👎👎
 <div align="center">
   <details>
     <summary>$\color{purple}{\text{🕯️w}}$</summary>
@@ -60,8 +61,8 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
   $\color{purple}{\text{Waxwell and Dessa yumeshippers!}}$
   $\color{purple}{\text{Waxwell and Dessa Fictkin!!}}$
   $\color{purple}{\text{Also Love All Sprout Ships (expect minors) and Waxwell ships (except minors)!}}$
-  $\color{purple}{\text{England yumeshippers! (Hetalia)}}$
-  $\color{purple}{\text{England Fictkin! He’s so me!!! and Canada kin!!!}}$
+  $\color{purple}{\text{England/Arthur Kirkland yumeshippers! (Hetalia)}}$
+  $\color{purple}{\text{England Fictkin! He’s so me!!! and Canada/Matthew Williams kin!!!}}$
   $\color{purple}{\text{Love All England Ships (except minors)!}}$
  </details>
 </div>
