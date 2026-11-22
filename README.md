@@ -56,6 +56,9 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 <div align="center">
   <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! and MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs}}$</summary>
 </div>
+<div align="center">
+  <summary>$\color{purple}{\text{Also I Ship Sprout x Everyone (expect minors) and Waxwell x Everyone (except minors)!}}$</summary>
+</div>
 
 ##
 <div align="center">
