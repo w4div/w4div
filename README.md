@@ -61,8 +61,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
   $\color{purple}{\text{Also Love All Sprout Ships (expect minors) and Waxwell ships (except minors)!}}$
   $\color{purple}{\text{England yumeshippers! (Hetalia)}}$
   
-  $\color{purple}{\text{England Fictkin! He’s so me!!!}}$
-  
+  $\color{purple}{\text{England Fictkin! He’s so me!!!}}$ 
   $\color{purple}{\text{Love All England Ships (except minors)!}}$
  </details>
 </div>
