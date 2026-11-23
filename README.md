@@ -63,10 +63,11 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 ##
 <div align="center">
  <details>
-  <summary>$\color{purple}{\text{💉. yume/ships and kin}}$</summary>
+  <summary>$\color{purple}{\text{💉. yume/ships and kin (plus some dni ships)}}$</summary>
   $\color{purple}{\text{Waxwell and Dessa yume!}}$
   $\color{purple}{\text{Shelly and Dessa Fictkin!!}}$
   $\color{purple}{\text{Also Love All Sprout Ships (except minors) and Waxwell ships (except minors)!}}$
+  $\color{purple}{\text{Fl*meKnight, S*ulb*sket dni!}}$
   
   $\color{purple}{\text{England yume! (Hetalia)}}$
   $\color{purple}{\text{England Fictkin! He’s so me!!! and Canada/Matthew Williams kin!!!}}$
