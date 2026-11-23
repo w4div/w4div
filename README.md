@@ -40,7 +40,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 <div align="center">
 <summary>Ewewew I’m France’s/Francis Bonnefoy’s haters number 1😡😡 just kidding, but I really dislike him👎👎</summary>
 <summary>I love England/Arthur Kirkland❤️❤️ reason: Tsundere because I love all Tsundere characters👍👍</summary>
-<summary>Also Caname, Engcan, Fracan, USUK and Frame DNI.</summary>
+<summary>Also Caname, Engcan, Fracan, USUK and FrUS DNI.</summary>
 </div>
 
 ##
