@@ -2,7 +2,7 @@
 
 **not mine!**
 
-if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need sometimes alone. *(iwvec+w2i)* if I’m okay, I’ll sitting with you.
+if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need sometimes alone. *(iwvec+w2i)* if I’m okay, I’ll sit with you.
 
 <div align="center">
 
@@ -66,7 +66,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
   <summary>$\color{purple}{\text{💉. yume/ships and kin}}$</summary>
   $\color{purple}{\text{Waxwell and Dessa yumeshippers!}}$
   $\color{purple}{\text{Waxwell and Dessa Fictkin!!}}$
-  $\color{purple}{\text{Also Love All Sprout Ships (expect minors) and Waxwell ships (except minors)!}}$
+  $\color{purple}{\text{Also Love All Sprout Ships (except minors) and Waxwell ships (except minors)!}}$
   $\color{purple}{\text{England yumeshippers! (Hetalia)}}$
   $\color{purple}{\text{England Fictkin! He’s so me!!! and Canada/Matthew Williams kin!!!}}$
   $\color{purple}{\text{Love All England Ships (except minors)!}}$
