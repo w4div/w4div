@@ -2,7 +2,7 @@
 
 **not mine!**
 
-if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need sometimes alone. *(iwvec+w2i)* if I’m okay, I’ll sit with you.
+if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need sometimes alone. *(iwvec+w2i)* if I’m okay, I’ll sit with you. I tend to ***overthink*** things, which is why I sometimes **imagine—purely** in my own head—that other people *hate* me.
 
 <div align="center">
 
