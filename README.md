@@ -11,31 +11,31 @@ if I follow someone that’s problematic or dark/pro/kid shippers tell me pls I�
 <div align="center">
 
 <a href="https://phillipacapsul0n.atabook.org/">
-  ₐₜₐbₒₒₖ
+  atabook
 </a>
 
 <br>
 
 <a href="https://pronouns.cc/@Wadivuiikkkhvoid">
-  ₚᵣₙₛ.cc
+  prns.cc
 </a>
 
 <br>
 
 <a href="https://www.tiktok.com/@wadivuiikkkhvoid">
-  ₜᵢₖₜₒₖ
+  TikTok
 </a>
 
 <br>
 
 <a href="https://discordid.netlify.app/?id=1503729158365380714">
-  Dᵢₛcₒᵣd
+  Discord
 </a>
 
 <br>
 
 <a href="https://www.instagram.com/sayhimklxmkeliyng?mdxt=MWhranowOWRzM3lhMg==">
-  ᵢₙₛₜₐgᵣₐₘ 
+  instagram 
 </a>
 
 </div>
@@ -53,7 +53,7 @@ if I follow someone that’s problematic or dark/pro/kid shippers tell me pls I�
     <summary>$\color{purple}{\text{🕯️w}}$</summary>
     <br>
     <a href="https://github.com/pt-fashion">
-     ₚₜ₋fₐₛₕᵢₒₙ
+     pt-fashion
     </a>
     <br>
   </details>
@@ -94,7 +94,7 @@ if I follow someone that’s problematic or dark/pro/kid shippers tell me pls I�
 - **"next time please do think before adding ships to ur if you're going to regret this later"** I promise won't do that again and I will think before adding ships! thank you, Marshall.
     <br>
     <a href="https://github.com/firepupp">
-     fᵢᵣₑₚᵤₚₚ
+     firepupp
     </a>
     <br>
     *November 20, 2026 at 4:44:02 PM*
