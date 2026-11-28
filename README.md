@@ -6,7 +6,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 
 I tend to ***overthink*** things, which is why I sometimes **imagine—purely** in my own head—that other people *hate* me.
 
-if I follow someone that’s problematic or dark/pro/kid shippers tell me pls I’ll unfollow them.
+if I follow someone that’s problematic, dark/pro/kid shippers or pedo/zoo tell me pls I’ll unfollow them.
 
 <div align="center">
 
