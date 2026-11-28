@@ -6,7 +6,7 @@ if I have a problem or smth that makes me feel comfortable/Feeling Bad, I need s
 
 I tend to ***overthink*** things, which is why I sometimes **imagine—purely** in my own head—that other people *hate* me.
 
-if I follow someone that’s problematic, dark/pro/kid shippers or pedo/zoo tell me pls I’ll unfollow them. omg why some of my friends are problematic/dark/pro/kidshippers/pedo/zoo, bro?? Or are they acting friendly to get me to be their friend, without me knowing about their past??? PLEASE stop, I don’t want to be friends with Any problematic/dark/pro/kidshippers/pedo/zoo people. Unless you accept it from the very beginning.
+if I follow someone that’s problematic, dark/pro/kid shippers or pedos/Zoophiles tell me pls I’ll unfollow them. omg why some of my friends are problematic/dark/pro/kidshippers/pedo/zoo, bro?? Or are they acting friendly to get me to be their friend, without me knowing about their past??? PLEASE stop, I don’t want to be friends with Any problematic/dark/pro/kidshippers/pedos/Zoophiles people. Unless you accept it from the very beginning.
 
 <div align="center">
 
