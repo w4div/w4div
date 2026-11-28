@@ -60,7 +60,7 @@ if I follow someone thatâ€™s problematic or dark/pro/kid shippers tell me pls Iâ
 </div>
 <div align="center">
   <summary>$\color{purple}{\text{Doubles are okay! Dbls iwvec}}$</summary>
- <summary>$\color{purple}{\text{C+H, W2I, W2Ship, Do not copy, Do not cover, iwec/iwc! Mostly Afk, Slow reply! . Darkshippers or proshippers dni!}}$</summary>
+ <summary>$\color{purple}{\text{C+H, W2I, W2Ship, Do not copy, Do not cover, iwec/iwc! Mostly Afk, Slow reply! bad at English . Darkshippers or proshippers dni!}}$</summary>
  <summary>$\color{purple}{\text{YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! and MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs}}$</summary>
 </div>
 
