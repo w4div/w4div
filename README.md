@@ -17,25 +17,25 @@ if I follow someone that’s problematic or dark/pro/kid shippers tell me pls I�
 <br>
 
 <a href="https://pronouns.cc/@Wadivuiikkkhvoid">
-  prns.cc
+  քʀռֆ.ƈƈ
 </a>
 
 <br>
 
 <a href="https://www.tiktok.com/@wadivuiikkkhvoid">
-  Tiktok
+  TιƙTσƙ
 </a>
 
 <br>
 
 <a href="https://discordid.netlify.app/?id=1503729158365380714">
-  Discord
+  Dιʂƈσɾԃ
 </a>
 
 <br>
 
 <a href="https://www.instagram.com/sayhimklxmkeliyng?mdxt=MWhranowOWRzM3lhMg==">
-  Instagram 
+  Iɳʂƚαɠɾαɱ 
 </a>
 
 </div>
