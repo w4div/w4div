@@ -11,31 +11,31 @@ if I follow someone that’s problematic or dark/pro/kid shippers tell me pls I�
 <div align="center">
 
 <a href="https://phillipacapsul0n.atabook.org/">
-  AƚαႦσσƙ
+  ₐₜₐbₒₒₖ
 </a>
 
 <br>
 
 <a href="https://pronouns.cc/@Wadivuiikkkhvoid">
-  քʀռֆ.ƈƈ
+  ₚᵣₙₛ.cc
 </a>
 
 <br>
 
 <a href="https://www.tiktok.com/@wadivuiikkkhvoid">
-  TιƙTσƙ
+  ₜᵢₖₜₒₖ
 </a>
 
 <br>
 
 <a href="https://discordid.netlify.app/?id=1503729158365380714">
-  Dιʂƈσɾԃ
+  Dᵢₛcₒᵣd
 </a>
 
 <br>
 
 <a href="https://www.instagram.com/sayhimklxmkeliyng?mdxt=MWhranowOWRzM3lhMg==">
-  Iɳʂƚαɠɾαɱ 
+  ᵢₙₛₜₐgᵣₐₘ 
 </a>
 
 </div>
